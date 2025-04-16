@@ -4,7 +4,7 @@
 
 HI!! i go by Geno / Alan or whatever pony im in!!  
 
-  <img src="https://media.discordapp.net/attachments/1231113319163887679/1361870364254277642/Untitled924_20250415195422.png?ex=6800541d&is=67ff029d&hm=155646449049f6ef001eb73632fd61ea24c872888d1b48fb25009d00b863c0ec&=&format=webp&quality=lossless" width="200" height="200">
 
    he/they + gender fluid 
                    
+  <img src="https://media.discordapp.net/attachments/1231113319163887679/1361870364254277642/Untitled924_20250415195422.png?ex=6800541d&is=67ff029d&hm=155646449049f6ef001eb73632fd61ea24c872888d1b48fb25009d00b863c0ec&=&format=webp&quality=lossless" width="200" height="200">
