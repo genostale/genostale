@@ -9,7 +9,8 @@ HI!! I go by Geno / Alan or whatever pony im in!! ![alt text](https://epic.crd.c
 
    istp ![alt text](https://watermelon.crd.co/assets/images/gallery05/8d03b66e.gif?v=6332de85)
 
-feel free to int with me if were in the same fandom!! ![alt text](https://64.media.tumblr.com/16b3af4204cf4055bc4a2febfda8fa6b/5cd3247bdc027d24-2d/s100x200/0d9a15fe431713c5d71f1e5b08fd24298dd7a83d.gifv)
+feel free to int with me if were in the same fandom!! 
+![alt text](https://64.media.tumblr.com/16b3af4204cf4055bc4a2febfda8fa6b/5cd3247bdc027d24-2d/s100x200/0d9a15fe431713c5d71f1e5b08fd24298dd7a83d.gifv)
 c+h is fine! dont be afraid to INT!!                 
   <img src="https://media.discordapp.net/attachments/1231113319163887679/1361870364254277642/Untitled924_20250415195422.png?ex=6800541d&is=67ff029d&hm=155646449049f6ef001eb73632fd61ea24c872888d1b48fb25009d00b863c0ec&=&format=webp&quality=lossless" width="200" height="200">
 
