@@ -5,7 +5,7 @@
 HI!! I go by Geno / Alan or whatever pony im in!!  
 
 
-   he/they + gender fluid ![alt text](https://64.media.tumblr.com/e122cb2ec3f7305219f7dc7ce07dd800/tumblr_inline_p7hrx0DcEi1qdlkyg_75sq.gifv)
+   he/they + gender fluid ![alt text](https://64.media.tumblr.com/f15a36abcd737ec3792d3eb6cbcffbe1/5fd9c2162b04d497-b4/s75x75_c1/d8f301387453fcdb2f288e3534d33acbc44f7f2b.gifv)
 
    istp 
 feel free to int with me if were in the same fandom!!
