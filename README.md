@@ -7,7 +7,7 @@ HI!! I go by Geno / Alan or whatever pony im in!!
 
    he/they + gender fluid ![alt text](https://64.media.tumblr.com/f15a36abcd737ec3792d3eb6cbcffbe1/5fd9c2162b04d497-b4/s75x75_c1/d8f301387453fcdb2f288e3534d33acbc44f7f2b.gifv)
 
-   istp 
+   istp ![alt text](https://watermelon.crd.co/assets/images/gallery05/8d03b66e.gif?v=6332de85)
 feel free to int with me if were in the same fandom!!
 c+h is fine! dont be afraid to INT!!                 
   <img src="https://media.discordapp.net/attachments/1231113319163887679/1361870364254277642/Untitled924_20250415195422.png?ex=6800541d&is=67ff029d&hm=155646449049f6ef001eb73632fd61ea24c872888d1b48fb25009d00b863c0ec&=&format=webp&quality=lossless" width="200" height="200">
